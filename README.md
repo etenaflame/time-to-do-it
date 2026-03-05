@@ -8,3 +8,4 @@ ppl help me to prove it
 it easy if i use ai
 ai is easy to teach me
 ok na krab 
+today can go
