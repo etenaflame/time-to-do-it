@@ -5,3 +5,4 @@ but i can do it go go
 i want someone help me
 and i can go upside
 ppl help me to prove it
+it easy if i use ai
