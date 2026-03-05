@@ -6,3 +6,4 @@ i want someone help me
 and i can go upside
 ppl help me to prove it
 it easy if i use ai
+ai is easy to teach me
