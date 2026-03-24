@@ -13,3 +13,4 @@ ggggg
 ok i leave
 gogo
 monday i eat
+tueday i learn
