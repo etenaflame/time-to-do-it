@@ -20,3 +20,4 @@ friday i go
 saturday i ok
 sunday ok
 bye bye
+gogo go
