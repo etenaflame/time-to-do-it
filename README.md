@@ -18,3 +18,4 @@ wed i sleep
 thuresday i fin
 friday i go
 saturday i ok
+sunday ok
