@@ -16,3 +16,4 @@ monday i eat
 tueday i learn
 wed i sleep
 thuresday i fin
+friday i go
